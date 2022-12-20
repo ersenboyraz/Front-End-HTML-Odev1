@@ -13,3 +13,5 @@ Savaş Tanrısı Odin'in soyundan geldiğine inanılan Ragnar'ın acımasız ve 
 - Hvitserk
 - Ivar
 - Sigurd
+
+[Ragnar](https://birparcatuhaftik.com/wp-content/uploads/2020/09/wp2040400-1600x900.jpg)
